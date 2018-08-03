@@ -1,1 +1,1 @@
-Fisier
+Fisier stricat
